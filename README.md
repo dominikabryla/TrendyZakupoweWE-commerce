@@ -1,0 +1,1 @@
+# TrendyZakupoweWE-commerce
